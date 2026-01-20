@@ -1,0 +1,50 @@
+# Reel 2 Real – Mueve La Cadera (Move Your Body)（feat. The Mad Stuntman）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+No hay un modo
+No hay un punto exacto
+Te doy todo
+Y siempre guardo algo
+
+Si estás oculta
+Como saber quien eres
+Me amas a obscuras
+Duermes envuelta en redes
+
+Signos
+Mi parte insegura
+Bajo una luna hostil
+Signos, oh
+
+Mar de fondo
+No caer en la trampa
+Llámame pronto
+Acertijos bajo el agua
+
+Si algo cedes
+Calmar tu histeria
+Con los dientes
+Rasgar tus medias
+
+Signos
+Mi parte insegura
+Bajo una luna hostil
+Signos, oh
+
+Signos
+Uniendo fisuras
+Figuras sin definir
+Signos, oh
+
+Signos
+Mi parte insegura
+Bajo una luna hostil
+Signos, oh
+
+Signos
+Uniendo fisuras
+Figuras sin definir
+Signos, oh
+```
